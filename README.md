@@ -1,4 +1,4 @@
-REAL APPEARANCE OF THE CROSS OF THE EMPEROR OF GOD JESUS CHRIST EMANUEL OF NAZARETH 
+REAL APPEARANCE OF THE CROSS OF THE EMPEROR OF GOD JESUS CHRIST EMANUEL OF NAZARETH.  
 The cross was made by a professional carpenter.
 Precisely crossed two longer beams, only with a smaller stand placed for the legs because it was not intended to hang on the palms because it would cause a faster death.
 The stand for the feet was placed also for the reason that the legs would also be nailed, because if there was no stand the soles of the feet would be impossible to straighten to be nailed without breaking the ankles.
